@@ -1,5 +1,5 @@
 
-# > *"They told me I had to choose between art and tech. I decided to do both anyway."* 🌸
+> ##*"They told me I had to choose between art and tech. I decided to do both anyway."* 🌸
 
 📍 B6 L8, Magsino Street, Camella Homes, Sambat, San Pascual Batangas, 4204, Philippines  
 📫 **Contact:** pinca.jeanne@gmail.com | +63 969 189 7761 
