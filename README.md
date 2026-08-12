@@ -1,4 +1,5 @@
-# Jeanne Paul Lynne O. Pinca 👋
+# Jeanne Paul Lynne O. Pinca 
+> *"They told me I had to choose between art and tech. I decided to do both anyway."* 🌸
 
 📍 B6 L8, Magsino Street, Camella Homes, Sambat, San Pascual Batangas, 4204, Philippines  
 📫 **Contact:** pinca.jeanne@gmail.com | +63 0969 189 7761 
