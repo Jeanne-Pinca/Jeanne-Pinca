@@ -2,7 +2,7 @@
 > *"They told me I had to choose between art and tech. I decided to do both anyway."* 🌸
 
 📍 B6 L8, Magsino Street, Camella Homes, Sambat, San Pascual Batangas, 4204, Philippines  
-📫 **Contact:** pinca.jeanne@gmail.com | +63 0969 189 7761 
+📫 **Contact:** pinca.jeanne@gmail.com | +63 969 189 7761 
 
 ### 🎯 Career Objective
 High-achieving Computer Science undergraduate highly proficient in React, Node.js, and object-oriented programming for both full-stack web and game development. With a unique capacity to bridge the gap between rigorous backend logic and intuitive UI/UX design, I am highly interested in AI-related research and seeking to apply my technical versatility to advanced software engineering and applied artificial intelligence projects.
